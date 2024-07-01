@@ -33,7 +33,7 @@ Checkout my linkedln profile :  www.linkedin.com/in/ashish-rajesh-78b989225
 
 #### Networking:
 
-- My networking progress extends beyond the digital realm, where I've formed meaningful connections through platforms like MuLearn and LinkedIn, as well as through direct conversations. By engaging with peers and professionals, I've not only expanded my network but also stayed updated on industry insights and trends. Additionally, I actively follow the work of others in my field, showcasing my dedication to continuous learning and staying informed.
+- My networking efforts go beyond the digital world, as I've built meaningful connections through platforms like MuLearn and LinkedIn, as well as through direct conversations. By engaging with peers and professionals, I have expanded my network and kept up-to-date with industry insights and trends. I also actively follow the work of others in my field, demonstrating my commitment to continuous learning and staying informed.
 
 #### Career Plan:
 
@@ -43,4 +43,4 @@ Checkout my linkedln profile :  www.linkedin.com/in/ashish-rajesh-78b989225
 
 #### Thoughts on Kerala's Tech Ecosystem:
 
-- Kerala's tech scene is high in potential!With its innovative spirit and talented youth, the state is poised for greatness in technology startups. By providing mentorship, funding, and better infrastructure, Kerala can help startups flourish. Collaboration between schools, businesses, and the government will supercharge this growth, creating jobs and boosting the economy. With the right support, Kerala can become a tech powerhouse, driving progress and changing lives for the better.
+- Kerala's tech scene holds immense potential! With an innovative spirit and talented youth, the state is on the brink of a technology startup boom. By offering mentorship, funding, and improved infrastructure, Kerala can enable startups to thrive. Enhanced collaboration between schools, businesses, and the government will accelerate this growth, creating jobs and boosting the economy. With the right support, Kerala can become a tech powerhouse, driving progress and transforming lives for the better.
